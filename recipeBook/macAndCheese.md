@@ -11,6 +11,7 @@
 * 1/2 teaspoon ground nutmeg
 * 3/4 pound fresh tomatoes (4 small)
 * 1 1/2 cups fresh white bread crumbs (5 slices, crusts removed)
+* Sriracha
 
 # Directions
 1. Preheat the oven to 375 degrees F.
