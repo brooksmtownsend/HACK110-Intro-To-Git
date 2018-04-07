@@ -11,4 +11,8 @@
 * 1 clove garlic, minced
 
 # Directions
-1. In a large bowl place the scooped avocado pulp and lime juice, toss to coat. Drain, and reserve the lime juice, after all of the avocados have been coated. Using a potato masher add the salt, cumin, and cayenne and mash. Then, fold in the onions, tomatoes, cilantro, and garlic. Add 1 tablespoon of the reserved lime juice. Let sit at room temperature for 1 hour and then serve. 
+1. In a large bowl place the scooped avocado pulp and lime juice, toss to coat. 
+2. Drain, and reserve the lime juice, after all of the avocados have been coated. 
+3. Using a potato masher add the salt, cumin, and cayenne and mash. 
+4. Then, fold in the onions, tomatoes, cilantro, and garlic. Add 1 tablespoon of the reserved lime juice. Let sit at room temperature for 1 hour and then serve. 
+5. eat da guac

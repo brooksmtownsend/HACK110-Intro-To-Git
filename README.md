@@ -7,3 +7,4 @@ Your hub for all your comp110 recipes!
 4. `git commit -m 'commit message'` your recipe
 5. `git pull origin master` any changes that have happened
 6. `git push origin master` your recipe!
+7. profit...
